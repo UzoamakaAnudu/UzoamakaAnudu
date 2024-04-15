@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @UzoamakaAnudu
 - 👀 I’m interested in Content Writing, Wordpress Web Development and Virtual Assistance.
 - 🌱 I’m currently learning JavaScript
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on Administrative Tasks, SEO Contents  Web Development.
+- 📫 How to reach me: Uzoamakaokerue@yahoo.co.uk
 - 😄 Pronouns:She
 - ⚡ Fun fact: ...
 
